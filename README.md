@@ -1,2 +1,2 @@
-# ITnetwork-Z-v-re-n-pr-ce
+# ITnetwork-Zaverecna_prace
 Závěrečná práce Jakub Němec
